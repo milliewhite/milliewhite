@@ -10,7 +10,7 @@
 
 - 💞️ I’m looking to collaborate on any projects! I am particularly interested in projects related to healthcare 
 
-- 📫 How to reach me : milliewhite6@aol.com  and 
+- 📫 How to reach me : milliewhite6@aol.com  and https://www.linkedin.com/in/millie-white-696a184b/
 
 <!---
 milliewhite/milliewhite is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
