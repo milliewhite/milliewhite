@@ -1,4 +1,4 @@
-- 👋 Hi, my name is Millie currently working as a community pharmacist for almost 15 years.
+- 👋 Hi, my name is Millie currently working as a pharmacist.
 
 
 - 👀 -Passionate about improving patient care outcomes using data analytics by combining actionable data with 
