@@ -1,4 +1,4 @@
-- 👋 Hi, my name is Millie currently working as a pharmacist.
+- 👋 Hi, my name is Millie currently working as a Central Monitor.
 
 
 - 👀 -Passionate about improving patient care outcomes using data analytics by combining actionable data with 
